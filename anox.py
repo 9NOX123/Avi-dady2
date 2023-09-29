@@ -1,1 +1,0 @@
-ha kr Le chori😂
